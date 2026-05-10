@@ -1,6 +1,6 @@
 # Privacy Policy for Linvo
 
-**Last updated: [DATE]**
+**Last updated: 10th May 2026**
 
 ## 1. Overview
 
